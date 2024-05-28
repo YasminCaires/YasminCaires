@@ -8,12 +8,13 @@ meu nome é Yasmincaires.
 
 •Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-### Você pode entrar em contato comigo
+### Você pode entrar em contato comigo 👇🏻
 
 cairesyasmin13@gmail.com
 
 @yasmiin_caires
 
+"grey's anatomy🫶❤️"
 
 ![](https://github.com/YasminCaires/YasminCaires/assets/170846102/d512df10-752e-43e6-b308-ace086d43cd4)
 
